@@ -1,1 +1,1 @@
-Jeu des cartes mémoire
+Jeux des cartes mémoire
